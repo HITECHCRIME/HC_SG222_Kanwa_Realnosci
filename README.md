@@ -22,14 +22,27 @@ Description.
 ## Lyrics
 
 ```
+
+zamknięty w czterech ścianach, myślę o złych sprawach 
+czar przeklęty trwa tu dla nas 
+rytuały wciąż pisane jakby tylko dla mas 
+wciąż ciążacych na kanwie realnego świata
+
+czekaj tylko z bólem się rozprawię nie dla siebie a dla brata
+siostry która wciąż się boi że nic tu nam nie zostanie
+rozpiszę swój punkt widzenia
+
 HOT16CHALLENGE
 1 zamknięty w czterech ścianach, myślę o złych sprawach 
-2 czar przeklęty trwa tu dla nas rytuały wciąż pisane jakby tylko dla mas wciąż ciążacych
-na kanwie realnego świata, 
+2 czar przeklęty trwa tu dla nas rytuały wciąż pisane jakby tylko dla mas 
+wciąż ciążacych na kanwie realnego świata, 
 3 czekaj tylko z bólem się rozprawię nie dla siebie a dla brata
 4 siostry która wciąż się boi że nic tu nam nie zostanie
 5 rozpiszę swój punkt widzenia
-6 nie jest zbyt 
+6 
+pozbawiłem się sumienia,
+nie jest zbyt radośnie
+sparzyłem me pragnienia
 7
 8
 9
